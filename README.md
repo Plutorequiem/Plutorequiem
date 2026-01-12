@@ -1,10 +1,7 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
 This description is mainly for Ponytown. 
-
 <img width="579" height="539" alt="tumblr_5f2e4f52b5504bd2659727ae6db11518_371eda50_640" src="https://github.com/user-attachments/assets/e52c5dfb-7501-4590-8e9d-7440632756e8" />
-
-
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
 I'm often too shy or stressed to make the first move, so if you really want to talk, just talk or whisper to me, I'll 100% respond (unless I'm AFK or you're weird with me) 
