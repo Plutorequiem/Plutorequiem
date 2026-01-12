@@ -1,7 +1,7 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
 This description is mainly for Ponytown. 
-![tumblr_d8ae5db5eb493e34d0ad326870d365c6_20adb880_250](https://github.com/user-attachments/assets/3cab2585-54d0-452e-b1a3-3d06c2673585)
+
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
 I'm often too shy or stressed to make the first move, so if you really want to talk, just talk or whisper to me, I'll 100% respond (unless I'm AFK or you're weird with me) 
@@ -17,6 +17,7 @@ The long walk (movie/book),F1,Haikyuu,Marvel,Dc,Invincible, Yttd,Sonic,Rdr2,Omor
 
 If you really want to add me elsewhere, like Discord, etc., whisper to me about it. I may refuse for some reasons (sorry if it happen.)
 ![tumblr_3c7c1cda6e2c2df3eaa34f5b4e4cf6ca_225bc7d6_100](https://github.com/user-attachments/assets/432dabda-cbaf-4588-866d-20cf34ba914b)![tumblr_74f56c714e367553c4f886c260bb08b3_2dba55fa_100](https://github.com/user-attachments/assets/36aa63a1-d683-4616-9ae1-e07f5c10e747)![tumblr_5fb3e34ac5e18252d6f0c34fa84bdb7b_df65783c_100](https://github.com/user-attachments/assets/66510789-878f-4086-b7fc-49cb8f344b5d)
+![tumblr_a11c4426be18b105b4f3cca89b16b63f_2a28b2c0_100](https://github.com/user-attachments/assets/3f85a373-8a92-4a30-b0a1-08fa8d02a3e5)
 
 
 
