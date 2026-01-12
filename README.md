@@ -1,6 +1,6 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
-this is mainly for ponytown info etcs. ![tumblr_59e24f6391932ac6b0e6e083643732d8_788c9434_100](https://github.com/user-attachments/assets/03755230-65b6-4020-98c8-c30f283eda8e)
+this is mainly for ponytown info etcs. 
 
 
 
@@ -13,7 +13,7 @@ I'm often too shy or stressed to make the first move, so if you really want to t
 Always C+H and int friendly! Even if it's not always written in the name of my skins, unless I have a dni/dniuf or something like that, it's often because I'm overwhelmed and please dni in those cases.
 The South Park or MHA fandom, please DNI unless I do it first. I've had very bad experiences with these fandoms, so I'd rather avoid them unless I really int first.
 I'm ADHD,autistic, neurodivergent in general and English isn't my first language, so sorry if I'm a little awkard...also I sometimes have trouble to recognises sarcasm etc so i need TONETAGS a lot.
-<img width="2048" height="154" alt="tumblr_081f17743ab2896660e1f320f354948e_41598ad3_2048" src="https://github.com/user-attachments/assets/43a3e03b-d199-43c8-888b-b89f2db1d91a" />
+<img width="737" height="47" alt="tumblr_028857c62e3e9df5bfaa87db915477e9_a2a82801_1280" src="https://github.com/user-attachments/assets/07429e28-cba0-4b63-afe9-d0067e16d62d" />
 
 <img width="350" height="350" alt="tumblr_5d0f2c55778d97201e28977940c14e47_93726a05_1280 (1)" src="https://github.com/user-attachments/assets/fd622a3c-fe7b-4f8a-914c-057749d24bac" />
 
