@@ -1,6 +1,7 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
-This description is mainly for Ponytown. <img width="400" height="400" alt="tumblr_d7fec8a849afdab6615d1c68b9291ceb_14485cc1_400" src="https://github.com/user-attachments/assets/a8f5e205-12d7-4a50-b985-671fbb785cc2" />
+This description is mainly for Ponytown. 
+<img width="400" height="400" alt="tumblr_d7fec8a849afdab6615d1c68b9291ceb_14485cc1_400" src="https://github.com/user-attachments/assets/a8f5e205-12d7-4a50-b985-671fbb785cc2" />
 
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
