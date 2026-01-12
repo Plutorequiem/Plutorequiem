@@ -12,7 +12,7 @@ The South Park or MHA fandom, please DNI unless I do it first. I've had very bad
 I'm ADHD,autistic, neurodivergent in general and English isn't my first language, so sorry if I'm a little awkard...also I sometimes have trouble to recognises sarcasm etc so i need TONETAGS a lot.
 <img width="2048" height="154" alt="tumblr_081f17743ab2896660e1f320f354948e_41598ad3_2048" src="https://github.com/user-attachments/assets/43a3e03b-d199-43c8-888b-b89f2db1d91a" />
 
-<img width="736" height="736" alt="tumblr_5d0f2c55778d97201e28977940c14e47_93726a05_1280" src="https://github.com/user-attachments/assets/f8102660-cf51-4cef-85a5-7cb72b4e2ecc" />
+<img width="350" height="350" alt="tumblr_5d0f2c55778d97201e28977940c14e47_93726a05_1280 (1)" src="https://github.com/user-attachments/assets/fd622a3c-fe7b-4f8a-914c-057749d24bac" />
 
 I can joke about my trauma to cope. I also have mental illnesses, but I prefer to laugh about it rather than cry. Sometimes I can get overwhelmed and be mean and/or react differently without realizing it, so if that really bothers you, int with caution?
 Some fandoms i'm in FEEL FREE TO YAP IF YOU HAVE SAME INTEREST I LIKE TO YAP ABOUT INTEREST A LOT
