@@ -1,6 +1,7 @@
 
 <img width="1800" height="300" alt="tumblr_4c2665aac813d9f5186f0ee8214aeea0_28b02fdf_2048" src="https://github.com/user-attachments/assets/b4198593-3ab0-4bc8-851b-b1b65f73f290" />
-this is mainly for ponytown info etcs. 
+this is mainly for ponytown info etcs. ![tumblr_20fbbb74ba4636a279ad2d8b512986b1_f2df1ce4_75](https://github.com/user-attachments/assets/a6274955-e23d-4662-a761-4ad43c6b183e)
+
 
 
 <img width="200" height="200" alt="tumblr_f6a38db691135ed43be98e1bdba52220_da16baf2_2048 (2)" src="https://github.com/user-attachments/assets/6bca9189-288c-4d8f-9b06-200b5f0f39f8" />
