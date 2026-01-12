@@ -2,7 +2,7 @@
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
 this is mainly for ponytown info etcs. 
 
-<img width="500" height="500" alt="tumblr_f6a38db691135ed43be98e1bdba52220_da16baf2_2048 (1)" src="https://github.com/user-attachments/assets/6f5d6ef8-680f-447a-9d45-95cba9de1dc0" />
+<img width="200" height="200" alt="tumblr_f6a38db691135ed43be98e1bdba52220_da16baf2_2048 (2)" src="https://github.com/user-attachments/assets/6bca9189-288c-4d8f-9b06-200b5f0f39f8" />
 
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
