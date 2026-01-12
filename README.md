@@ -1,6 +1,7 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
 This description is mainly for Ponytown. 
+![tumblr_d8ae5db5eb493e34d0ad326870d365c6_20adb880_250](https://github.com/user-attachments/assets/484fa16f-e9c1-44e3-b6e8-1c5d0bd46cb6)
 
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
