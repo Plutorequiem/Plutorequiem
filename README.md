@@ -1,8 +1,7 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
+this is mainly for ponytown info etcs.
 <img width="579" height="539" alt="tumblr_5f2e4f52b5504bd2659727ae6db11518_371eda50_640" src="https://github.com/user-attachments/assets/4540a686-c9c4-4e77-890e-a5260325f5e3" />
-
-
 
 You can call me Kri or by the skin I use (you can use a nickname if we're close enough).
 She/her
@@ -10,6 +9,7 @@ I'm often too shy or stressed to make the first move, so if you really want to t
 Always C+H and int friendly! Even if it's not always written in the name of my skins, unless I have a dni/dniuf or something like that, it's often because I'm overwhelmed and please dni in those cases.
 The South Park or MHA fandom, please DNI unless I do it first. I've had very bad experiences with these fandoms, so I'd rather avoid them unless I really int first.
 I'm ADHD,autistic, neurodivergent in general and English isn't my first language, so sorry if I'm a little awkard...also I sometimes have trouble to recognises sarcasm etc so i need TONETAGS a lot.
+<img width="2048" height="154" alt="tumblr_081f17743ab2896660e1f320f354948e_41598ad3_2048" src="https://github.com/user-attachments/assets/43a3e03b-d199-43c8-888b-b89f2db1d91a" />
 
 <img width="736" height="736" alt="tumblr_5d0f2c55778d97201e28977940c14e47_93726a05_1280" src="https://github.com/user-attachments/assets/f8102660-cf51-4cef-85a5-7cb72b4e2ecc" />
 
