@@ -1,6 +1,6 @@
 
 <img width="1000" height="289" alt="tumblr_33934a5225ec829dda86a99ce5f9ce5b_9a0582a6_1280" src="https://github.com/user-attachments/assets/0cbdf146-16ab-4b7f-97a6-cc62ac27ee27" />
-this is mainly for ponytown info etcs. ![tumblr_2390a036edc509093e80a3caab5f0bf4_e20cde85_75](https://github.com/user-attachments/assets/9332c3c8-748d-4c0a-9b2e-8a6123aa3b03)
+this is mainly for ponytown info etcs. 
 
 <img width="579" height="539" alt="tumblr_5f2e4f52b5504bd2659727ae6db11518_371eda50_640" src="https://github.com/user-attachments/assets/4540a686-c9c4-4e77-890e-a5260325f5e3" />
 
@@ -23,7 +23,9 @@ The long walk (movie/book),F1,Haikyuu,Marvel,Dc,Invincible, Yttd,Sonic,Rdr2,Omor
 
 If you really want to add me elsewhere, like Discord, etc., whisper to me about it. I may refuse for some reasons (sorry if it happen.)
 ![tumblr_3c7c1cda6e2c2df3eaa34f5b4e4cf6ca_225bc7d6_100](https://github.com/user-attachments/assets/432dabda-cbaf-4588-866d-20cf34ba914b)![tumblr_74f56c714e367553c4f886c260bb08b3_2dba55fa_100](https://github.com/user-attachments/assets/36aa63a1-d683-4616-9ae1-e07f5c10e747)![tumblr_5fb3e34ac5e18252d6f0c34fa84bdb7b_df65783c_100](https://github.com/user-attachments/assets/66510789-878f-4086-b7fc-49cb8f344b5d)
-![tumblr_a11c4426be18b105b4f3cca89b16b63f_2a28b2c0_100](https://github.com/user-attachments/assets/3f85a373-8a92-4a30-b0a1-08fa8d02a3e5)![tumblr_50f852cd9d6831183bf8348a51d46cbd_acca4320_100](https://github.com/user-attachments/assets/ef070ca7-c044-4e61-afe0-0ed8b7d02465)![tumblr_476ab5822679d6bf9efdd71ad4ce4bd0_e91f7591_100](https://github.com/user-attachments/assets/72deadf0-61c5-4454-8b1c-e3a1edc48429)
+![tumblr_a11c4426be18b105b4f3cca89b16b63f_2a28b2c0_100](https://github.com/user-attachments/assets/3f85a373-8a92-4a30-b0a1-08fa8d02a3e5)![tumblr_50f852cd9d6831183bf8348a51d46cbd_acca4320_100](https://github.com/user-attachments/assets/ef070ca7-c044-4e61-afe0-0ed8b7d02465)![tumblr_476ab5822679d6bf9efdd71ad4ce4bd0_e91f7591_100](https://github.com/user-attachments/assets/72deadf0-61c5-4454-8b1c-e3a1edc48429) ![tumblr_84524e59624acdfb198c6c509a9df9b0_04fd8447_100](https://github.com/user-attachments/assets/e927253f-ada6-4f7d-8f56-b79bf473beb3) <img width="99" height="56" alt="tumblr_d970cac53516f88e229c5a5aba5600ac_2bce6be9_100" src="https://github.com/user-attachments/assets/67e94af2-a437-4252-8c97-14415cb34315" />
+
+
 
 
 
