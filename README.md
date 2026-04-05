@@ -20,7 +20,7 @@ I can joke about my trauma to cope. I also have mental illnesses, but I prefer t
 
 Some fandoms i'm in FEEL FREE TO YAP IF YOU HAVE SAME INTEREST I LIKE TO YAP ABOUT INTEREST A LOT
 
-The long walk (movie/book),F1,Haikyuu,Marvel,Dc,Invincible, Yttd,Sonic,Rdr2,Omori,Trigun,Nana,Sk8One piece,Chainsawman,Pokemon,Stardew valley,Supernatural,Star Wars,Studio investigrave,Cod,Alien stage,Kpdh,TSHD,Blue period,Ohshc,LinkClick,Kny,Tougen Anki,Dungeon meshi,9-1-1,Final Fantasy Yellowjackets, Until Dawn,Dispatch,FNAF,Haunted Hotel, Stranger things,Heated rivalry,Mickey 17,Obey me,Twisted wonderland,Milgram and a lot more!
+The long walk (movie/book),F1,Haikyuu,Marvel,Dc,Invincible, Yttd,Sonic,Rdr2,Omori,Trigun,Nana,Sk8One piece,Chainsawman,Pokemon,Stardew valley,Supernatural,Star Wars,Studio investigrave,Cod,Alien stage,Kpdh,TSHD,Blue period,Ohshc,LinkClick,Kny,Tougen Anki,Dungeon meshi,9-1-1,Final Fantasy Yellowjackets, Until Dawn,Dispatch,FNAF,Haunted Hotel,Heated rivalry,Mickey 17,Obey me,Twisted wonderland,Milgram and a lot more!
 <img width="2048" height="163" alt="tumblr_54b77af879fe8c80f9339229f0cf7b3e_91a12fa1_2048" src="https://github.com/user-attachments/assets/52f1c3df-7b00-45ab-9e32-037da4cf61ba" />
 
 ![tumblr_ce71af1e8795909a4933681f32c3bc54_ea622202_100](https://github.com/user-attachments/assets/26249451-689a-4456-8dcb-9758a03bac9d)
