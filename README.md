@@ -30,6 +30,9 @@ If you really want to add me elsewhere, like Discord, etc., whisper to me about 
 Here take my stamp etc collection to know a little more about me (maybe.) (They are udapted when I feel like it.)
 
 <img width="101" height="57" alt="tumblr_b0a1da66b664456776a71d5c35508b2e_216e7282_250" src="https://github.com/user-attachments/assets/d9dc78df-d484-431c-9c29-9ae33969291c" />
+<img width="94" height="50" alt="tumblr_4b5da41a46a62886a5159b0c3f6440ca_f3328411_100" src="https://github.com/user-attachments/assets/b64d8665-e871-49e1-b776-625ac3f765e6" />
+<img width="94" height="50" alt="tumblr_8654265ec1a57db4755bd20051d545fa_d7da6ec6_100" src="https://github.com/user-attachments/assets/240a7744-8a5b-4030-8b7d-b5daa8042f6d" />
+<img width="94" height="50" alt="tumblr_ab638f31ca9ff75ab880f75f641ed85c_95765e05_100" src="https://github.com/user-attachments/assets/d5c9223e-05e5-423a-8d1d-ae909ea43e7b" />
 
 
 
