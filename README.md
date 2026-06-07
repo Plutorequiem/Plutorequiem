@@ -29,14 +29,7 @@ If you really want to add me elsewhere, like Discord, etc., whisper to me about 
 
 Here take my stamp etc collection to know a little more about me (maybe.) (They are udapted when I feel like it.)
 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c1ce3f04-c4fd-47c8-82d7-6c3ac4e37967" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cf31254-5b86-4d05-ac5a-ea11cce6841e" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0815ccc0-b624-45f9-a240-0da1d1f30343" /> 
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a6503774-831c-420e-8385-b12f9d4682be" />
-<img width="94" height="50" alt="image" src="https://github.com/user-attachments/assets/eaf36811-2ffc-4441-8d2d-398d5ecd4c00" />
-<img width="94" height="50" alt="image" src="https://github.com/user-attachments/assets/3099ae4a-da7a-4f53-bb5d-48b617305fc3" />
-<img width="94" height="50" alt="image" src="https://github.com/user-attachments/assets/a4ab542f-3d3c-40cb-a750-c1030c217eb3" />
-<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/2be1c4cc-712e-45b3-83e2-a2996831bb2b" />
+<img width="101" height="57" alt="tumblr_b0a1da66b664456776a71d5c35508b2e_216e7282_250" src="https://github.com/user-attachments/assets/d9dc78df-d484-431c-9c29-9ae33969291c" />
 
 
 
