@@ -27,8 +27,9 @@ The long walk (movie/book),F1,Haikyuu,Marvel,Dc,Invincible, Yttd,Sonic,Rdr2,Omor
 
 If you really want to add me elsewhere, like Discord, etc., whisper to me about it. I may refuse for some reasons (sorry if it happen.)
 
-Here take my stamp etc collection to know a little more about me (maybe.) (They are udapte when I feel like it.)
-<img width="270" height="181" alt="image" src="https://github.com/user-attachments/assets/1f277014-da90-4266-b95c-4c74fd07d3d2" />
+Here take my stamp etc collection to know a little more about me (maybe.) (They are udapted when I feel like it.)
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/4e166c41-99bb-4e30-be2c-a6a35d6a36a4" />
+
 
 
 
