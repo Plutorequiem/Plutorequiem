@@ -62,6 +62,15 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="56" alt="tumblr_22f45c879af82bce41d001aecaf9981a_5feecf73_100" src="https://github.com/user-attachments/assets/2f339d58-7dd6-4c98-a92c-19680af93284" />
 <img width="99" height="56" alt="tumblr_f5616db763e3c2f2074de40b5b745e88_30cb5667_100" src="https://github.com/user-attachments/assets/2066c374-0729-4e4a-b4de-1b775d585dfa" />
 <img width="99" height="56" alt="tumblr_8bd7ac05c25901a1ef19fcc17daca128_04922b21_100" src="https://github.com/user-attachments/assets/bac58231-a05a-4b6d-b54b-a9d3066a7461" />
+<img width="99" height="56" alt="tumblr_d8c0aeb627dde8278a9782bf9450d43a_c109451e_100" src="https://github.com/user-attachments/assets/773dd5fb-fd8f-44ff-b102-882ec654ffb4" />
+<img width="99" height="57" alt="tumblr_08f486d417f7dcf214a4a4ac979f9484_aef66354_100" src="https://github.com/user-attachments/assets/ed6d5ce6-ece1-48bc-8908-630cb78364f5" />
+<img width="101" height="57" alt="tumblr_23a47b09f35449e257ee4bec45817ff5_98c4f296_250" src="https://github.com/user-attachments/assets/3fab5012-4893-48a6-8412-9c79348c8b7f" />
+<img width="188" height="100" alt="tumblr_76bd364057637c81b0581651118c285a_98bff2e5_250" src="https://github.com/user-attachments/assets/0009b4ba-c54c-4993-8364-e3fb0f1d65ef" />
+<img width="91" height="55" alt="tumblr_ddee861cf61222bbcfbad3e2af84c688_d2a8d49c_100" src="https://github.com/user-attachments/assets/b9191c8e-11ee-4113-a6bb-2b167a00d989" />
+<img width="99" height="56" alt="tumblr_51bcd20ec4c0ee9fd7be8b5d625443f0_d5467c60_100" src="https://github.com/user-attachments/assets/3cfa2de5-13f9-4bfb-9367-da626bd4c855" />
+<img width="99" height="57" alt="tumblr_9455337084875d014d9d4a3ed1ec3ad0_875d2dc1_100" src="https://github.com/user-attachments/assets/b5f03175-6d40-4b08-9343-4b10e54c032c" />
+<img width="99" height="56" alt="tumblr_89cdef3fba9f09b01ec9058f2c8575a3_0527e5d0_100" src="https://github.com/user-attachments/assets/61e10da7-7524-44c2-a019-ed986aa22b20" />
+
 
 
 
