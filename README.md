@@ -41,6 +41,14 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="56" alt="tumblr_862a7298f4522fc36b1400ccb56b567d_1191c68e_100" src="https://github.com/user-attachments/assets/147c3ff5-c823-42d2-8971-e07d4575834d" />
 <img width="99" height="56" alt="tumblr_a16d10c861a61c2bc446882be11cb731_6a8e8dea_100" src="https://github.com/user-attachments/assets/7d488784-ea2b-4e2c-beb9-f32bef8fddac" />
 <img width="99" height="56" alt="tumblr_50f852cd9d6831183bf8348a51d46cbd_acca4320_100" src="https://github.com/user-attachments/assets/657931dc-9d7c-4f24-80f1-748204634dcd" />
+<img width="99" height="56" alt="tumblr_2189c59f54eaf0f216d2572fb6045ef2_a3d7d473_100" src="https://github.com/user-attachments/assets/36444a0b-d614-4bfc-b58a-e27f9190672c" />
+<img width="99" height="56" alt="tumblr_a447a715f6650c981d9652363019d491_5a64c344_100" src="https://github.com/user-attachments/assets/bebf6805-5d07-402c-a148-d219eb07f0ea" />
+<img width="101" height="57" alt="tumblr_f442b107345e618024bed22e67eedba8_f9ff4a50_250" src="https://github.com/user-attachments/assets/26c022cf-6ef6-472d-85af-81c5d8625135" />
+<img width="97" height="57" alt="tumblr_2b89f065a4d74a8b6d3ebdaaf8e32c13_d1a01b52_100" src="https://github.com/user-attachments/assets/8681ba01-a002-478f-95df-376ec20c41b4" />
+<img width="99" height="56" alt="tumblr_70917267c6a0f562f87a2cc982923209_a345beb7_100" src="https://github.com/user-attachments/assets/45b401bd-02d8-4a5e-bef9-5b5b6e7eb9c7" />
+<img width="99" height="56" alt="tumblr_6ee3c797e92a4db4c87a1c50f8887ab0_72ef6a01_100" src="https://github.com/user-attachments/assets/89f6d12f-a62b-4259-b68e-6d8e498f9e84" />
+<img width="99" height="56" alt="tumblr_804ec97de1111b8cc56241c5f412b3ad_747e9c4d_100" src="https://github.com/user-attachments/assets/e80b4492-f8b8-42ad-ad3e-8760c97b6f36" />
+<img width="99" height="56" alt="tumblr_ca4f54404c5f9f849684f574a8799e0e_a2b192fc_100" src="https://github.com/user-attachments/assets/12899fd3-0d88-434c-a348-d25a709a50c8" />
 
 
 
