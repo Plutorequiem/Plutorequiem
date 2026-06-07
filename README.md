@@ -31,6 +31,9 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c1ce3f04-c4fd-47c8-82d7-6c3ac4e37967" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0cf31254-5b86-4d05-ac5a-ea11cce6841e" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0815ccc0-b624-45f9-a240-0da1d1f30343" /> 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/fcee6374-ea00-4890-b3ce-1ed85d5c49de" />
+
 
 
 
