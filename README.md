@@ -6,7 +6,7 @@ this is mainly for ponytown info etcs.
 
 <img width="200" height="200" alt="tumblr_f6a38db691135ed43be98e1bdba52220_da16baf2_2048 (2)" src="https://github.com/user-attachments/assets/6bca9189-288c-4d8f-9b06-200b5f0f39f8" />
 
-You can call me Kri, Jester or by the skin I use (you can use a nickname if we're close enough).
+You can call me Jester,bunny or by the skin I use (you can use a nickname if we're close enough).
 She/her
 I'm often too shy or stressed to make the first move, so if you really want to talk, just talk or whisper to me, I'll 100% answer (unless I'm AFK or you're weird with me) 
 Always C+H and int friendly! Even if it's not always written in the name of my skins, unless I have a dni/dniuf or something like that, it's often because I'm overwhelmed and please dni in those cases.
