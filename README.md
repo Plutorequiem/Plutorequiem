@@ -1,6 +1,7 @@
 
 <img width="1800" height="300" alt="tumblr_4c2665aac813d9f5186f0ee8214aeea0_28b02fdf_2048" src="https://github.com/user-attachments/assets/b4198593-3ab0-4bc8-851b-b1b65f73f290" />
 
+<img width="1103" height="1084" alt="tumblr_43138ce57e993942d0635ecac97fd4c4_e105303b_1280" src="https://github.com/user-attachments/assets/2b612e69-1bad-418b-84f6-263a33a9863c" />
 this is mainly for ponytown info etcs.
 
 You can call me Jester or by the skin I use (you can use a nickname if we're close enough).
@@ -71,6 +72,9 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e8a8ba1e-cdfe-4df4-9118-995e33ce6cf5" />
 <img width="99" height="56" alt="tumblr_eff8196797056a5d9d0470ddf46b9687_5325c40d_100" src="https://github.com/user-attachments/assets/20d9657d-8bad-4a05-bc9f-c1011ef72c5e" />
 <img width="101" height="57" alt="tumblr_eb99ba58782631e65f2f177130675249_5234c0d8_250" src="https://github.com/user-attachments/assets/27578044-bc99-4162-b17f-322ee67d22ff" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5e1f67dd-5839-43fc-94d4-69d0f1a1ed8a" />
+<img width="99" height="57" alt="tumblr_3a6f765e939b7d7300a8a57fe70bc29f_7d240a51_100" src="https://github.com/user-attachments/assets/e456815e-4320-4f4f-a844-e83398832b1c" />
+
 
 
 
