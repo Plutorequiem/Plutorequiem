@@ -1,5 +1,7 @@
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/32a88965-e1e5-4f4d-ac0e-f79e595c4d47" />
 
+<img width="200" height="200" alt="tumblr_43138ce57e993942d0635ecac97fd4c4_e105303b_1280" src="https://github.com/user-attachments/assets/0107dc1d-0419-44e6-a47b-dfe5d7b17d90" />
+
 this is mainly for ponytown info etcs.
 
 You can call me Jester or by the skin I use (you can use a nickname if we're close enough).
