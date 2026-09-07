@@ -1,4 +1,4 @@
-<img width="300" height="200" alt="tumblr_161a342a23ec7e32e880fab33b166d39_8b835dd1_1280" src="https://github.com/user-attachments/assets/245d3de8-0a29-4c4d-b1cb-fe12edb3396d" />
+<img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/32a88965-e1e5-4f4d-ac0e-f79e595c4d47" />
 
 this is mainly for ponytown info etcs.
 
