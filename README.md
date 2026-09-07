@@ -1,10 +1,7 @@
 
 <img width="1800" height="300" alt="tumblr_4c2665aac813d9f5186f0ee8214aeea0_28b02fdf_2048" src="https://github.com/user-attachments/assets/b4198593-3ab0-4bc8-851b-b1b65f73f290" />
+
 this is mainly for ponytown info etcs.
-
-
-
-<img width="200" height="200" alt="tumblr_f6a38db691135ed43be98e1bdba52220_da16baf2_2048 (2)" src="https://github.com/user-attachments/assets/6bca9189-288c-4d8f-9b06-200b5f0f39f8" />
 
 You can call me Jester or by the skin I use (you can use a nickname if we're close enough).
 She/her
@@ -69,8 +66,12 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="56" alt="tumblr_697f85daab7d022d6df57ef5e12f6c93_f6a2fe1e_100" src="https://github.com/user-attachments/assets/a5e01602-35c8-4bee-8cf3-78e0ee0e3395" />
 <img width="91" height="55" alt="tumblr_ddee861cf61222bbcfbad3e2af84c688_d2a8d49c_100" src="https://github.com/user-attachments/assets/b9191c8e-11ee-4113-a6bb-2b167a00d989" />
 <img width="99" height="56" alt="tumblr_51bcd20ec4c0ee9fd7be8b5d625443f0_d5467c60_100" src="https://github.com/user-attachments/assets/3cfa2de5-13f9-4bfb-9367-da626bd4c855" />
-<img width="99" height="57" alt="tumblr_9455337084875d014d9d4a3ed1ec3ad0_875d2dc1_100" src="https://github.com/user-attachments/assets/b5f03175-6d40-4b08-9343-4b10e54c032c" />
-<img width="99" height="56" alt="tumblr_89cdef3fba9f09b01ec9058f2c8575a3_0527e5d0_100" src="https://github.com/user-attachments/assets/61e10da7-7524-44c2-a019-ed986aa22b20" />
+<img width="99" height="56" alt="tumblr_9455337084875d014d9d4a3ed1ec3ad0_875d2dc1_100" src="https://github.com/user-attachments/assets/b5f03175-6d40-4b08-9343-4b10e54c032c" />
+<img width="99" height="56" alt="tumblr_89cdef3fba9f09b01ec9058f2c8575a3_0527e5d0_100" src="https://github.com/user-attachments/assets/61e10da7-7524-44c2-a019-ed986aa22b20" /> 
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e8a8ba1e-cdfe-4df4-9118-995e33ce6cf5" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4fed6bc1-2b4b-482c-a6e3-3635a930630d" />
+
+
 
 
 
