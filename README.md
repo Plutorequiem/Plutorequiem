@@ -74,6 +74,10 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="101" height="57" alt="tumblr_eb99ba58782631e65f2f177130675249_5234c0d8_250" src="https://github.com/user-attachments/assets/27578044-bc99-4162-b17f-322ee67d22ff" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/5e1f67dd-5839-43fc-94d4-69d0f1a1ed8a" />
 <img width="99" height="57" alt="tumblr_3a6f765e939b7d7300a8a57fe70bc29f_7d240a51_100" src="https://github.com/user-attachments/assets/e456815e-4320-4f4f-a844-e83398832b1c" />
+<img width="99" height="56" alt="tumblr_db1462dec723fda006c8ecda47bbfbf6_5c5803f1_100" src="https://github.com/user-attachments/assets/386cf7e9-3496-4d64-98df-964238c15fb8" />
+<img width="99" height="56" alt="tumblr_58940490c7bde25e56077cdefcb2c4d1_6a52e539_100" src="https://github.com/user-attachments/assets/348b7327-6157-4fe8-99bd-82469977fbfb" />
+
+
 
 
 
