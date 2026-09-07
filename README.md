@@ -76,6 +76,10 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="57" alt="tumblr_3a6f765e939b7d7300a8a57fe70bc29f_7d240a51_100" src="https://github.com/user-attachments/assets/e456815e-4320-4f4f-a844-e83398832b1c" />
 <img width="99" height="56" alt="tumblr_db1462dec723fda006c8ecda47bbfbf6_5c5803f1_100" src="https://github.com/user-attachments/assets/386cf7e9-3496-4d64-98df-964238c15fb8" />
 <img width="99" height="56" alt="tumblr_58940490c7bde25e56077cdefcb2c4d1_6a52e539_100" src="https://github.com/user-attachments/assets/348b7327-6157-4fe8-99bd-82469977fbfb" />
+<img width="99" height="56" alt="tumblr_975a96ecf31f615bbc027205c34fa61b_fa450e3c_100" src="https://github.com/user-attachments/assets/0bb5a139-6d75-4292-9908-77267c1cceed" />
+<img width="99" height="56" alt="tumblr_870be3b1c295f878beea9f6b9533d7a7_53a11d15_100" src="https://github.com/user-attachments/assets/9483e9ba-dd3b-4a91-be3e-314f49f47561" />
+<img width="99" height="56" alt="tumblr_eee9059ad9daec7f8d13ce6515f00dec_383fa521_100" src="https://github.com/user-attachments/assets/d31590c1-d7ad-4779-bac6-77aa5a90be18" />
+
 
 
 
