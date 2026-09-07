@@ -1,7 +1,5 @@
+<img width="800" height="200" alt="tumblr_161a342a23ec7e32e880fab33b166d39_8b835dd1_1280" src="https://github.com/user-attachments/assets/535521ea-7665-4f4e-b898-433daa972a8b" />
 
-<img width="1800" height="300" alt="tumblr_4c2665aac813d9f5186f0ee8214aeea0_28b02fdf_2048" src="https://github.com/user-attachments/assets/b4198593-3ab0-4bc8-851b-b1b65f73f290" />
-
-<img width="1103" height="1084" alt="tumblr_43138ce57e993942d0635ecac97fd4c4_e105303b_1280" src="https://github.com/user-attachments/assets/2b612e69-1bad-418b-84f6-263a33a9863c" />
 this is mainly for ponytown info etcs.
 
 You can call me Jester or by the skin I use (you can use a nickname if we're close enough).
