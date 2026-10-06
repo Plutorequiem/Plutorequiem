@@ -79,8 +79,11 @@ Here take my stamp etc collection to know a little more about me (maybe.) (They 
 <img width="99" height="56" alt="tumblr_975a96ecf31f615bbc027205c34fa61b_fa450e3c_100" src="https://github.com/user-attachments/assets/0bb5a139-6d75-4292-9908-77267c1cceed" />
 <img width="99" height="56" alt="tumblr_870be3b1c295f878beea9f6b9533d7a7_53a11d15_100" src="https://github.com/user-attachments/assets/9483e9ba-dd3b-4a91-be3e-314f49f47561" />
 <img width="99" height="56" alt="tumblr_eee9059ad9daec7f8d13ce6515f00dec_383fa521_100" src="https://github.com/user-attachments/assets/d31590c1-d7ad-4779-bac6-77aa5a90be18" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d7807a75-c186-459b-b2d6-396d12fb20e3" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/abda597e-803d-4f25-868b-414687b140e3" />
+<img width="99" height="56" alt="tumblr_a146c350df05795c59f865a496c4a26b_63ab0d71_250" src="https://github.com/user-attachments/assets/471876b8-b75f-435b-935b-60fcf3ee9595" />
+<img width="99" height="56" alt="tumblr_d8ca8e575515c0b1c8eb4f68bdc8ffaa_b03f030e_100" src="https://github.com/user-attachments/assets/268844cd-9a1d-464d-89d5-fcbb6d194443" />
+
+
+
 
 
 
