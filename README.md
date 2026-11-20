@@ -10,7 +10,7 @@ I'm often too shy or stressed to make the first move, so if you really want to t
 Always C+H and int friendly! Even if it's not always written in the name of my skins, unless I have a dni/dniuf or something like that, it's often because I'm overwhelmed and please dni in those cases.
 The South Park or MHA fandom, please DNI unless I do it first. I've had very bad experiences with these fandoms, so I'd rather avoid them unless I really int first.
 I'm ADHD,autistic, neurodivergent in general and English isn't my first language, so sorry if I'm a little awkard...also I sometimes have trouble to recognises sarcasm etc so i need TONETAGS a lot.
-<img width="2048" height="315" alt="tumblr_23e37988eef2cc70f676ea7bb76cc0b5_5812d022_2048" src="https://github.com/user-attachments/assets/b5983d1a-95bf-4c8b-a4d6-58af69c68bac" />
+<img width="1600" height="120" alt="tumblr_d991512d3de325a0dfea98fb7d7d88e3_ab1a4517_2048" src="https://github.com/user-attachments/assets/9788bc21-72e0-4043-af41-b3a5e60de48d" />
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/3c682f6c-00e9-4c0a-b76f-ccd3d129a71c" />
 
