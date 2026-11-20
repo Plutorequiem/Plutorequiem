@@ -1,6 +1,6 @@
 <img width="2048" height="163" alt="image" src="https://github.com/user-attachments/assets/32a88965-e1e5-4f4d-ac0e-f79e595c4d47" />
 
-<img width="980" height="980" alt="tumblr_5f3612caa01a661a65a6d2ebfe0a1671_518cf470_1280" src="https://github.com/user-attachments/assets/380fc00d-8169-4c73-8e99-59903047475d" />
+<img width="150" height="150" alt="tumblr_5f3612caa01a661a65a6d2ebfe0a1671_518cf470_1280" src="https://github.com/user-attachments/assets/380fc00d-8169-4c73-8e99-59903047475d" />
 
 this is mainly for ponytown info etcs.
 
